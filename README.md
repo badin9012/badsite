@@ -1,2 +1,2 @@
-# badsite # ong no cap
+# badsite
 bio (not worth looking into)
